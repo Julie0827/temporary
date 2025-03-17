@@ -1,1 +1,1 @@
-# temporary
+# Hi 👋 if you’ve reached this page looking for further reading on the project, the repository is currently private. As a temporary solution, I’ve linked to this repository instead. I apologize for the inconvenience! I plan to continue working on the project and will update the links once the correct repository is made public. Thanks for your patience! 🩵
